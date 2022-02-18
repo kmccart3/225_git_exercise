@@ -1,6 +1,8 @@
 The baby doll knew it must continue to haunt the students.
-The students had an outing planned--after class, they were going to grab ice cream.
+The students had an outing planned.
+After class, they were going to grab ice cream.
 However, on the way to the ice cream store, they heard a cry in the distance.
+They cry sounded shriveled but clear.
 They looked at eachother concerned; it sounded like a baby.
 They glanced up the nearby hill, and saw a nunery.
 They all started running and wondering "Why was a baby crying at the nunery?"
