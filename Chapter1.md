@@ -11,5 +11,5 @@ The door creaked open, light leaking into the dusty small room and into her dish
 Baby Doll stirs in her box, but keeps her eyes closed.
 A small child walks into the room and begins digging through the old boxes and chests lying in the old attic, searching for something. 
 Suddenly, the child's hands touch the gingham skirt.
-The dust lifts into the air.
+The dust lifts into the milky air.
 Baby Doll's eyes opened.
