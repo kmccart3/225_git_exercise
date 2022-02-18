@@ -6,3 +6,7 @@ One day, Baby Doll woke up and found herself sleeping in an old box.
 Her paper white plastic hands were stiff from unuse, her gingham skirt dustier than she last remembered. 
 The door creaked open, light leaking into the dusty small room and into her disheveled box. 
 A small child walks into the room and begins digging through the old boxes and chests lying in the old attic, searching for something. 
+"Where is my bear?"
+"Where is my bear?"
+She frantically digs through the boxes and chests.
+"Where did my bear go?"
