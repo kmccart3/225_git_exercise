@@ -10,6 +10,7 @@ She didn't think about the way she looked, only about her next target.
 She closed her eyes to dream about the terror she would cause.
 The door creaked open, light leaking into the dusty small room and into her disheveled box. 
 Baby Doll stirs in her box, but keeps her eyes closed.
+She sighs to herself. 
 A small child walks into the room and begins digging through the old boxes and chests lying in the old attic, searching for something. 
 Suddenly, the child's hands touch the gingham skirt.
 The dust lifts into the air.
